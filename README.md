@@ -1,1 +1,1 @@
-# jizzaxindex.uz
+# haj-jizzax
