@@ -1,0 +1,1 @@
+# jizzaxindex.uz
